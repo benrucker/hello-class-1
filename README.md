@@ -1,4 +1,4 @@
 # hello-class
-fksadjdsr995dfkhanfansdfgdsfkhadfjd I want noodles
+Wow, check out this shiny Read Me.
 
-Sorry for ruining the read me :(
+Sorry I deleted everything :(
